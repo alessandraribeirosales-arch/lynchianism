@@ -1,1 +1,1 @@
-# Adoração-ao-David-Lynch
+# lynchianism
